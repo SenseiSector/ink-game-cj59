@@ -1,4 +1,4 @@
-
+ink game exclusive Scripts offers the most advanced ink game Script, with auto-heal and auto-collect. Perfect for dominating any match.
 
 
 
